@@ -1,2 +1,0 @@
-# ShishQA-Beskrovnyh
-# ShishQA-Beskrovnyh
